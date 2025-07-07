@@ -25,7 +25,7 @@ Además, siempre fui un apasionado por la lectura, lo que me ayudó a desarrolla
 ---
 
 ### No dudes en contactarme!
-[LinkedIn](www.linkedin.com/in/gianmicheloni)
+[LinkedIn](https://www.linkedin.com/in/gmicheloni52/)
 Correo: gmicheloni52@gmail.com
 
 <!--
